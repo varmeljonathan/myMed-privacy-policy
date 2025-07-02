@@ -1,0 +1,1 @@
+# myMed-privacy-policy
